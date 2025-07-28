@@ -1,1 +1,3 @@
 # 5216813_ASFAQ-AHAMED-K
+
+![Image Alt](https://github.com/asfaqahamed2786/5216813_ASFAQ-AHAMED-K/blob/b7586bd2f3d53a27cf4241f3ea9ad958ffd220c1/5216813_ASFAQ%20AHAMED%20K.png)
